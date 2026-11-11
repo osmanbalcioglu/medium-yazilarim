@@ -1,0 +1,1 @@
+https://medium.com/@osmanbalcioglu/cnin-hikayesi-unix-ten-bug%C3%BCne-bir-dil-nas%C4%B1l-ya%C5%9Far-2de1e07d80e9
